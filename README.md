@@ -54,8 +54,8 @@ Retatrutide (LY3437943) is Lilly’s triple-agonist in late-stage trials for **o
 
 ## Disclaimer
 
-> BuyRetatrutide.net is **not** a pharmacy and does **not** dispense medication.  
-> All content is provided for informational purposes only and **does not constitute medical advice**.  
+> BuyRetatrutide.net is **not** a pharmacy and does **not** dispense medication. We are part of <a href="https://peptilian.com/">Buy Peptides UK group Peptilian UK</a>  
+> All content is provided for informational purposes only and **does not constitute medical advice**. 
 > Always consult a qualified healthcare professional before starting any drug therapy.
 
 ---
